@@ -11,7 +11,7 @@ I am a general (but mainly game) programmer and 3D artist. I mainly uses Unity w
 <p align="center"> UE4 | Unity | Android Runtime | KiriKiri Z | Winform </p>
  
 ## <div align="center">꧁ꦧꦺꦭꦗꦫꦤ꧀꧂</div> ##
-I'd interested to learn Kinect API since I want to make my own VTuber avatar on net.
+I'd interested to learn Kinect API since I want to make my own VTuber avatar on net. I'm a boy btw.
  
 ## <div align="center"> ꧁ꦢꦺꦴꦭꦤꦤ꧀꧂</div>
 I like playing rhythm games like osu!, Bang Dream、デレステ and ミリシタ. And sometime RPG like F/GO, Genshin Impact and Grand Sphere.

@@ -29,4 +29,4 @@ I like playing rhythm games like osu!, Bang Dream、デレステ and ミリシ�
  </details>
  
  ## <div align="center"> ꧁ꦏꦺꦴꦤ꧀ꦠꦏ꧀꧂</div> ##
- <p align="center"> <a href="https://fb.me/aina.chumpa">Facebook</a> | <a href="https://twitter.com/IbnuSyahriel">Twitter</a> | <a href="mailto:ainaaikochumpa@gmail.com">Email</a > | <a href="https://discordapp.com/users/737668691092832296"> Discord : EmiyaSyahriel#9984 </a> | <a href="https://www.youtube.com/channel/UC38gw8vrO1bOV33L6XQysqQ">YouTube</a></p>
+ <p align="center"> <a href="https://fb.me/aina.chumpa">Facebook</a> | <a href="https://twitter.com/IbnuSyahriel">Twitter</a> | <a href="https://discordapp.com/users/737668691092832296"> Discord : EmiyaSyahriel#9984 </a> | <a href="https://www.youtube.com/channel/UC38gw8vrO1bOV33L6XQysqQ">YouTube</a></p>
